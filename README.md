@@ -3,7 +3,7 @@
 
 搬运请注明出处
 
-预预览图：
+预览图：
 ![loveheart](https://user-images.githubusercontent.com/72309990/201514699-c6f39367-3eb1-464b-9f81-70e696b72a9e.png)
 
 自定义：
